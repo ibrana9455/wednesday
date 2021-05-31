@@ -1,2 +1,0 @@
-# wednesday
-Assessment task
